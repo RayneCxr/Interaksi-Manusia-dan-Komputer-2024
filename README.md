@@ -1,2 +1,2 @@
-###Gabriella Caesaria Vianney
-####2209106007
+Nama: Gabriella Caesaria Vianney
+NIM: 2209106007
